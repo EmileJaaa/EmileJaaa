@@ -1,2 +1,2 @@
 Emile Jaaa
-[hacker, painter]
+[ hacker, painter, father, lover, dreamer, gamer, creator ]
